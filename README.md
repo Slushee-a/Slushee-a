@@ -1,2 +1,2 @@
-# [Gitlab profile](https://gitlab.com/slusheea)
+# [Gitlab profile](https://gitlab.com/slushee)
 # [My website](https://slushee.dev)
